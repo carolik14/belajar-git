@@ -4,4 +4,4 @@ ya Tuhan kuatkanlahhh
 hoooooooooooosiana
 siiiiiiiiiiapa aku ini
 haleluyaaa puji Tuhan
-
+nsdbsjbiudjefnj
